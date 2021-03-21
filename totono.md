@@ -34,21 +34,22 @@ Now this is where Totono really shines for me.
 This is a time where we need to assume that the characters are living, conscious people with their own feelings. Obviously, I know there aren't actually little people in my computer, but this is quite natural assumption while consuming a narrative work and we subconsciously do this all the time. The only difference this time is that YOU are also part of the story.
 
 ### Miyuki
-At the end of "Aoi route", enraged Miyuki murders Shinichi. She accused you of betrayal and traps you in the version of the game controlled by her, which seems like a sadistic punishment for your infidelity. You're forced to redo the same events for hundreds of times, cannot really save game anymore and at one point you need to repeatedly solve a quiz about Miyuki until you get it right.
+At the end of "Aoi route", enraged Miyuki murders Shinichi. She accuses you of betrayal and traps you in the version of the game controlled by her, which seems like a sadistic punishment for your infidelity. You're forced to redo the same events for hundreds of times, cannot really save game anymore and at one point you need to repeatedly solve a quiz about Miyuki until you get it right.
 
 ![](assets/totono_MkshTxSSk8.jpg)
 
-In one of the events there was a possibility to talk to God on the phone, who tells you, that in order to escape the loop, you must make Miyuki loose her composure, either by making her really happy, or really angry. "You can't just trap people!" and "fuck off, Miyuki", I thought to myself, and decided to rebel. So for each choice I was repeatedly picking the option which seemed like it would irritate Miyuki. I disagreed with her on every occasion and mentioned Aoi a million times.
+In one of the events there is a possibility to talk to God on the phone, who tells you, that in order to escape the loop, you must make Miyuki loose her composure, either by making her really happy, or really angry. "You can't just trap people!" and "fuck off, Miyuki", I thought to myself, and decided to rebel. So for each choice I was repeatedly picking the option which seemed like it would irritate Miyuki. I disagreed with her on every occasion and mentioned Aoi a million times.
 
 Miyuki, as expected, did get gradually more irritated. As she was getting angrier, the music also changed into more sinister. Persistently aggravating her finally resulted in another bloodbath, where she repeatedly murders Shinichi a few times.
 
-But, as I got to know more about her point of view, i started to sympathize with her. In one scene, she literally begs you for a kiss, repeating the line for like ten times. I was still determined to make her as angry as possible, so I resisted, but it started to feel wrong.
+But, as I got to know more about her point of view, I started to sympathize with her. In one scene, she literally begs you for a kiss, repeating the line for like ten times. I was still determined to make her as angry as possible, so I resisted, but it started to feel wrong.
+
 ![](assets/totono_YJeuiptDo7.jpg)
 
-At first it seems like she's just mad from jealousy (like what is your problem? I didn't promise you anything, that was the other route!), but then you start to understand her point of view. By reading her diary on her phone you learn that in the "Miyuki route" she already knew that the world is a game, and learned how to preserve her memories between routes. Later she also reveals that she is in fact cursed to either be with Shinichi or be unhappy. She actually explored ALL the possible endings where she doesn't end up with Shinichi and she wasn't happy in any of them. She is disillusioned with the world and puts up a tragic fight. The loop isn't supposed to be a mere punishment for the player, Miyuki actually wants to stay in there together with you, because she is afraid, that if you had a choice, you wouldn't choose her. And she just wants to be loved.
+At first it seems like she's just mad from jealousy (like what is your problem? I didn't promise you anything, that was the other route!), but then you realize her motivations are much deeper. By reading her diary on her phone you learn that in the "Miyuki route" she already knew that the world is a game, and learned how to preserve her memories between routes. Later she also reveals that she is in fact cursed to either be with Shinichi or be unhappy. She actually explored ALL the possible endings where she doesn't end up with Shinichi and she wasn't happy in any of them. She is disillusioned with the world and puts up a tragic fight. The loop isn't supposed to be a mere punishment for the player, Miyuki actually wants to stay in there together with you, because she is afraid, that if you had a choice, you wouldn't choose her. And she just wants to be loved.
 
 ### You
-The further the story progresses, the clearer the distinction between YOU (the player) and Shinichi becomes. The distinction appears first in the first murder scene at the end of Aoi route. Miyuki suddenly looks straight into the camera and starts talking to YOU.
+The further the story progresses, the clearer the distinction between YOU (the player) and Shinichi becomes. The distinction appears first in the murder scene at the end of Aoi route. Miyuki suddenly looks straight into the camera and starts talking to YOU.
 
 When she speaks to YOU, she uses "kimi" and continues to do that consistently for the rest of the game (now it is also finally revealed, who is actually the "kimi" in "Kimi to kanojo to kanojo no koi"!). Also, when Shinichi isn't around (i.e. dead or sleeping), the lines are voice-only, since the text box represents what Shinichi thinks and perceives.
 
@@ -62,9 +63,9 @@ In one scene, Miyuki asked Shinichi if he loves her, and he replies "yes" (witho
 
 ![](assets/totono_Z5Nd4Kq7gH.jpg)
 
-Does Miyuki actually love you? After all, she doesn't really know you. You just happen to be the only person in this world, whose feelings have any weight, the only person who can truly acknowledge her. Her love seems like a very vague, abstract feeling, akin maybe to many people saying they love God (who YOU, in a sense, are in Totono's world).
+Does Miyuki actually love you? After all, she doesn't really know you. You just happen to be the only person in this world, whose feelings have any weight, the only person who can truly acknowledge her. Her love seems like a very vague, abstract feeling, akin maybe to how many people say they love God (who YOU, in a sense, are in Totono's world).
 
-The culmination of YOUR relation with Miyuki is the sex scene, where, unlike before, Shinichi is not present at all. It's just YOU and Miyuki.
+The culmination of your relation with Miyuki is the sex scene, where, unlike before, Shinichi is not present at all. It's just YOU and Miyuki.
 
 > 一緒に、エッチ……しよ？
 > 
@@ -86,6 +87,8 @@ The game tries very hard to convince you that the final choice is important and 
 
 This is important, because the act of making a choice itself changes the way you think. It matters, because it is a declaration you make before yourself. You can see the other ending later, but it's not YOUR ending, it's not the thing YOU chose. Also, because the choice is irreversible, the heroines can, at least this one time, trust that it is your honest decision.
 
+![](assets/totono_QCt9ElwaCr.jpg)
+
 As it is likely obvious already, I chose Miyuki. I didn't see Aoi ending, but I saw other people writing about it, so I have I general idea of what it's about. It seems like the Aoi ending is more in the spirit of the "global" interpretation of Totono's message, while Miyuki ending stays more in the context of the story. I agree that the Miyuki ending seems kind of basic, but it feels satisfying to me, I'm just glad she got a happy resolution. As I don't care too much about the "global" interpretation of Totono (i.e. extending onto other games), I find it quite fitting that I got this ending.
 
 ## Final thoughts
@@ -99,7 +102,7 @@ Some other random things I liked:
 - seeing Miyuki get gradually more irritated each time you buy her the same cookbook
 - art overall was pretty good
 - るる
-- EROSU!
+- EROS!
 
 ![](assets/erosu.png)
 
