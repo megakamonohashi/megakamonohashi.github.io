@@ -89,7 +89,7 @@ This is important, because the act of making a choice itself changes the way you
 
 ![](assets/totono_QCt9ElwaCr.jpg)
 
-As it is likely obvious already, I chose Miyuki. I didn't see Aoi ending, but I saw other people writing about it, so I have I general idea of what it's about. It seems like the Aoi ending is more in the spirit of the "global" interpretation of Totono's message, while Miyuki ending stays more in the context of the story. I agree that the Miyuki ending seems kind of basic, but it feels satisfying to me, I'm just glad she got a happy resolution. As I don't care too much about the "global" interpretation of Totono (i.e. extending onto other games), I find it quite fitting that I got this ending.
+As it is likely obvious already, I chose Miyuki. I haven't seen Aoi ending, but I saw other people writing about it, so I have a general idea of what it's about. It seems like the Aoi ending is more in the spirit of the "global" interpretation of Totono's message, while Miyuki ending stays more in the context of the story. I agree that the Miyuki ending seems kind of basic, but it feels satisfying to me, I'm just glad she got a happy resolution. As I don't care too much about the "global" interpretation of Totono (i.e. extending onto other games), I find it quite fitting that I got this ending.
 
 ## Final thoughts
 Although I feel like the main points Totono is trying to make don't resonate with me that much, I liked it simply as a very engaging and interesting experience. 
